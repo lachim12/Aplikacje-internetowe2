@@ -1,2 +1,2 @@
-# Aplikacje-internetowe2
+# Aplikacje-internetowe2 sa super#
 laborki
